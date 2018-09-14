@@ -22,3 +22,4 @@
 - 답글 중에서 기존 창업자 및 예비창업자가 평가하여 코인을 줌
 - 코인은 현금으로 바꿔쓸 수 있음.
 
+![kakaotalk_20180914_201203864](https://user-images.githubusercontent.com/14806489/45547157-bbac5180-b85a-11e8-8121-4ce376b0704e.jpg)
